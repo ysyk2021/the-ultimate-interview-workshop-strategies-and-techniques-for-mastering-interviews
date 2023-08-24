@@ -1,5 +1,3 @@
-Chapter 12: Mastering Nonverbal Communication
-=============================================
 
 Nonverbal communication, such as body language and tone of voice, plays a crucial role in the interview process. In this chapter, we will explore techniques for mastering nonverbal communication to help you make a positive impression on your interviewer.
 

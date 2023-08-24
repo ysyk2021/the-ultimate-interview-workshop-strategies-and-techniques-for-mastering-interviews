@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Common Interview Questions
-===================================================
 
 One of the keys to success in an interview is being prepared for common interview questions. In this chapter, we'll explore techniques for preparing for some of the most commonly asked interview questions.
 

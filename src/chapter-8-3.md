@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 Unfortunately, not every interview will result in a job offer. However, it's essential to maintain a positive and professional relationship with the interviewer and the company, even if you don't get the job. In this chapter, we'll explore what to do after an unsuccessful job interview.
 

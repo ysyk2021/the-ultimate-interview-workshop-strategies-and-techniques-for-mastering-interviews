@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews involve multiple candidates being interviewed at the same time by one or more interviewers. They can be challenging because you need to stand out from other candidates while also showing respect and support for your fellow interviewees. In this chapter, we'll explore techniques for preparing for and navigating group interviews.
 

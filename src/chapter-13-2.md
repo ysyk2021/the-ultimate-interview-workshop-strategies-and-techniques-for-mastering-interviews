@@ -1,5 +1,3 @@
-Techniques for Building Confidence in Your Answers
-==========================================================================================================
 
 Interviews can be stressful and anxiety-inducing, but building confidence in your answers can help you perform at your best. In this chapter, we will discuss techniques for building confidence and overcoming anxiety during interviews.
 

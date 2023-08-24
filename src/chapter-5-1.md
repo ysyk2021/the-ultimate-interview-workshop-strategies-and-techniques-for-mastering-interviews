@@ -1,5 +1,3 @@
-Commonly Asked Questions About Your Background and Experience
-==================================================================================================================
 
 Preparing for common interview questions is an essential step in mastering job interviews. By anticipating and preparing for these questions, you can demonstrate your qualifications and increase your chances of success in the job search process. In this chapter, we will discuss commonly asked questions about your background and experience and how to prepare effective responses.
 

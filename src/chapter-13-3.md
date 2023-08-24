@@ -1,5 +1,3 @@
-Strategies for Overcoming Anxiety and Stress
-====================================================================================================
 
 Interviews can be a source of anxiety and stress for many job seekers. However, there are strategies you can use to overcome these feelings and perform at your best during the interview process. In this chapter, we will discuss strategies for overcoming anxiety and stress during interviews.
 

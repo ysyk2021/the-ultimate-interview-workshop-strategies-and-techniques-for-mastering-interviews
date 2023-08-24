@@ -1,5 +1,3 @@
-Chapter 11: Advanced Interviewing Techniques
-============================================
 
 As a job seeker, it's essential to go beyond the basics of interview preparation and develop advanced techniques that can help you stand out from other candidates. In this chapter, we'll explore advanced interviewing techniques that can take your interview skills to the next level.
 

@@ -1,5 +1,3 @@
-Creating a Positive First Impression
-===================================================================================
 
 Nonverbal communication is an important aspect of interview success. It includes body language, facial expressions, tone of voice, and other cues that can impact how you are perceived by the interviewer. In this chapter, we will discuss techniques for mastering nonverbal communication to create a positive first impression.
 

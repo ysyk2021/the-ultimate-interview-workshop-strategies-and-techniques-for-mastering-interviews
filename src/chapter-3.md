@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Personal Brand
-=======================================
 
 Crafting a strong personal brand is essential to standing out in the job search process. It's an opportunity to showcase your unique skills and experience and demonstrate why you are the best candidate for the position. In this chapter, we will discuss strategies and techniques for developing a strong personal brand.
 

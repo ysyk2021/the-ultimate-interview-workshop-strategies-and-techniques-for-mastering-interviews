@@ -1,5 +1,3 @@
-Chapter 9: Navigating Special Interview Circumstances
-=====================================================
 
 Interviews can come in many different formats, and it's essential to be prepared for any situation. In this chapter, we'll explore techniques for navigating special interview circumstances.
 

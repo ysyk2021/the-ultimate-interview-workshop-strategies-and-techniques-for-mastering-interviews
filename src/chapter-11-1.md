@@ -1,5 +1,3 @@
-Using Storytelling to Make Your Answers Compelling
-================================================================================================
 
 Storytelling is a powerful tool for making your interview answers more compelling and memorable. By weaving stories into your responses, you can engage the interviewer, showcase your skills and experience, and create a lasting impression. In this chapter, we will discuss techniques for using storytelling in interviews.
 

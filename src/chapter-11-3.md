@@ -1,5 +1,3 @@
-Using the SOARA Framework for Answering Open-Ended Questions
-==========================================================================================================
 
 Open-ended questions are a common feature of job interviews, and they can be difficult to answer effectively. The SOARA framework is a technique that can help you structure your answers and provide more thoughtful and insightful responses. In this chapter, we will discuss the SOARA framework and how to use it during interviews.
 

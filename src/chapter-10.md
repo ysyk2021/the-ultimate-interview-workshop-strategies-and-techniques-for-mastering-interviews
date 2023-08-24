@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 Negotiating salary and benefits is an important part of the job offer process. It's your opportunity to ensure that you are being compensated fairly for your skills and experience and to secure the best possible package for yourself. In this chapter, we will discuss how to navigate the negotiation process and provide tips on how to negotiate effectively.
 

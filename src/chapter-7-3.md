@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 Effective communication is essential during the interview process, and nonverbal communication can play a significant role in how you are perceived by potential employers. In this chapter, we will discuss tips for using nonverbal communication effectively during interviews.
 

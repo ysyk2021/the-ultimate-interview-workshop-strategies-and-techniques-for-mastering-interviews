@@ -1,5 +1,3 @@
-Conclusion: Summary of Key Points
-=================================
 
 In this book, we've covered a wide range of strategies and techniques for mastering interviews. Here's a summary of the key points:
 

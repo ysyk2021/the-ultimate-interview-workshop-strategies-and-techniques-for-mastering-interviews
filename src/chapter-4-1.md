@@ -1,5 +1,3 @@
-Conducting Research About the Company
-======================================================================================
 
 Researching the company and position is an essential step in preparing for job interviews. By understanding the company's values, mission, and culture, you can tailor your responses and demonstrate your fit for the position. In this chapter, we will discuss strategies for conducting research about the company.
 

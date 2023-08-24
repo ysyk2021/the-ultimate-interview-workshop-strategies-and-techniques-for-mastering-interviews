@@ -1,5 +1,3 @@
-Different Types of Job Interviews
-=================================================================================
 
 The interview process can take different shapes and forms depending on the company and position you are applying for. Understanding the different types of job interviews can help you prepare more effectively and increase your chances of success in the job search process. In this chapter, we will discuss some common types of job interviews.
 

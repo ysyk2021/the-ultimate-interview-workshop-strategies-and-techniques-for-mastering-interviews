@@ -1,5 +1,3 @@
-Chapter 4: Researching the Company and Position
-===============================================
 
 Conducting thorough research about the company and position before an interview is essential for success. In this chapter, we'll explore techniques for researching the company and position effectively.
 

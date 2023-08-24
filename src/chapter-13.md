@@ -1,5 +1,3 @@
-Chapter 13: Building Confidence and Overcoming Anxiety
-======================================================
 
 Interviewing for a job can be a stressful experience, even for the most experienced job seeker. However, building confidence and managing anxiety can help you perform better during an interview and increase your chances of success.
 

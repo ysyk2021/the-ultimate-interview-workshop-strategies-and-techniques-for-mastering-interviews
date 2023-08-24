@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 Following up after an interview is a critical step in the job search process. It's your opportunity to express gratitude for the opportunity, reiterate your interest in the position, and stay top-of-mind with hiring managers. In this chapter, we will discuss how to follow up effectively after an interview and what to do if you don't get the job.
 

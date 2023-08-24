@@ -1,5 +1,3 @@
-Controlling Your Own Nonverbal Cues
-==================================================================================
 
 Nonverbal communication, such as body language and tone of voice, plays a crucial role in the interview process. In this chapter, we'll explore techniques for mastering nonverbal communication by controlling your own nonverbal cues.
 

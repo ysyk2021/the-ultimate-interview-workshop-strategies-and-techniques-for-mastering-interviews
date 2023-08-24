@@ -1,5 +1,3 @@
-Identifying Your Strengths and Weaknesses
-================================================================================================
 
 Identifying your strengths and weaknesses is an essential part of creating your own ultimate interview plan. In this chapter, we'll explore techniques for self-assessment and identifying your strengths and weaknesses.
 
