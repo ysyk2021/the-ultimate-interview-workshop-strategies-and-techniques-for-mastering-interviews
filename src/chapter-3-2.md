@@ -1,5 +1,4 @@
-Chapter 4: Understanding Your Unique Value Proposition
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies and techniques for understanding your unique value proposition during interviews. Your unique value proposition represents the distinct combination of skills, experiences, and qualities that set you apart from other candidates. By mastering these strategies, you can effectively communicate your unique value and stand out in the interview process.
 

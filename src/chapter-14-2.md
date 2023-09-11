@@ -1,5 +1,4 @@
-Chapter 2: Developing a Personalized Interview Preparation Plan
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for developing a personalized interview preparation plan. A well-structured and tailored preparation plan is essential for mastering interviews and increasing your chances of success. By following these steps and creating a plan that works for you, you can approach interviews with confidence and showcase your qualifications effectively.
 

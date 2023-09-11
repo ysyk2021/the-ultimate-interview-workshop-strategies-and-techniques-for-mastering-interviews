@@ -1,5 +1,4 @@
-Chapter 7: Using Storytelling to Make Your Answers Compelling
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for using storytelling to make your answers compelling during interviews. Storytelling is a powerful tool that can captivate interviewers, engage their interest, and effectively showcase your qualifications and experiences.
 

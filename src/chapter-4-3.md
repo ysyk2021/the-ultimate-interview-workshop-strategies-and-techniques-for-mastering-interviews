@@ -1,5 +1,4 @@
-Chapter 4: Identifying the Company Culture and Values
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for identifying the company culture and values during interviews. Understanding the culture and values of a company is essential to determine if it aligns with your own goals and values. By learning how to assess these aspects, you can make informed decisions about potential job opportunities and enhance your interview performance.
 

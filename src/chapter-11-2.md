@@ -1,5 +1,4 @@
-Chapter 8: Demonstrating Cultural Fit and Alignment with Company Values
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for demonstrating cultural fit and alignment with company values during interviews. Companies place great importance on hiring candidates who not only possess the necessary skills and qualifications but also align with their culture and values.
 

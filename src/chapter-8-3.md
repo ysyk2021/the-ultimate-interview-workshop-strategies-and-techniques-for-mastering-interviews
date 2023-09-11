@@ -1,5 +1,4 @@
-Chapter 10: What to Do If You Don't Get the Job
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for handling the situation when you don't get the job. While it can be disappointing, it's important to approach it with resilience, professionalism, and a growth mindset.
 

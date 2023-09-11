@@ -1,5 +1,4 @@
-Chapter 6: Controlling Your Own Nonverbal Cues
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for controlling your own nonverbal cues during interviews. Your nonverbal communication can greatly impact the impression you make on interviewers. By mastering these tips, you can ensure that your body language, facial expressions, and overall demeanor convey confidence, professionalism, and engagement.
 

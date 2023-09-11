@@ -1,5 +1,4 @@
-Chapter 6: Building Rapport and Connection with the Interviewer
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for building rapport and establishing a strong connection with the interviewer during job interviews. Developing a positive relationship with the interviewer can enhance your likability and increase your chances of success. By mastering these strategies, you can effectively build rapport and create a meaningful connection.
 

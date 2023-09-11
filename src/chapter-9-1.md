@@ -1,5 +1,4 @@
-Chapter 7: Phone and Video Interviews
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for mastering phone and video interviews. With the rise of remote work and virtual communication, it is essential to understand how to effectively navigate these interview formats. By mastering these tips, you can confidently showcase your skills and qualifications, regardless of the medium.
 

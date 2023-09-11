@@ -1,5 +1,4 @@
-Chapter 5: Cultivating a Winning Mindset, Confidence, and Adaptability
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for cultivating a winning mindset, building confidence, and enhancing adaptability during the interview process. Developing a positive mindset and exhibiting confidence and adaptability are crucial elements in mastering interviews and presenting yourself as a strong candidate.
 

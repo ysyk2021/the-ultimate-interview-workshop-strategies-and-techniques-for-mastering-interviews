@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Answering Difficult or Unexpected Questions
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective techniques for answering difficult or unexpected questions during interviews. Interviews often include challenging or unexpected questions that can catch candidates off guard. By mastering these techniques, you can confidently navigate through such situations and provide thoughtful and impressive responses.
 

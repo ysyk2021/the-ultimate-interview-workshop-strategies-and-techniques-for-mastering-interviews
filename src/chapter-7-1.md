@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Effective Communication and Listening
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for effective communication and active listening during interviews. Strong communication skills are essential for conveying your qualifications, demonstrating professionalism, and building rapport with interviewers. By mastering these techniques, you can enhance your interview performance and leave a positive impression.
 

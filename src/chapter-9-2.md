@@ -1,5 +1,4 @@
-Chapter 9: Group Interviews
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for mastering group interviews. Group interviews can involve multiple candidates being assessed simultaneously or a panel of interviewers evaluating a single candidate. By understanding the dynamics of group interviews and preparing effectively, you can confidently navigate these scenarios and showcase your qualifications.
 

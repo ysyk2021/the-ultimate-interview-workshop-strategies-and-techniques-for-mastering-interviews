@@ -1,5 +1,4 @@
-Chapter 4: Identifying Your Strengths and Weaknesses
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for identifying your strengths and weaknesses during the interview process. Understanding and articulating your strengths effectively allows you to highlight your unique qualifications and value proposition. Similarly, being aware of your weaknesses enables you to address them proactively and demonstrate a commitment to personal growth and development.
 

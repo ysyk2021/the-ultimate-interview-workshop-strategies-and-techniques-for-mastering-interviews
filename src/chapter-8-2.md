@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Staying Top-of-Mind with Hiring Managers
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for staying top-of-mind with hiring managers throughout the interview process. It is essential to maintain a strong presence and positive impression to increase your chances of being remembered and selected for the role.
 

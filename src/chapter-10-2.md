@@ -1,5 +1,4 @@
-Chapter 8: Tips for Researching and Determining Fair Compensation
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for researching and determining fair compensation during the interview process. Understanding market rates and negotiating salary effectively can help you secure a competitive compensation package. By mastering these tips, you can ensure that your compensation aligns with your skills, experience, and the value you bring to the organization.
 
